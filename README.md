@@ -1,4 +1,4 @@
-SILAHKAN DI DOWNLOAD FILE DIBAWAH INI CINDYY :)
+SILAHKAN DI DOWNLOAD FILE DIBAWAH INI
 
 [Daffa Mahardika.docx](https://github.com/fadhil050804/TugasDaffa/files/6998834/Daffa.Mahardika.docx)
 
